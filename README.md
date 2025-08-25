@@ -1,1 +1,2 @@
-# thoughts-hmmm
+# thoughts-hmmm 
+<html> <title> good changes </title> <body> things are changing its taking a little time and are going slow but i am fine i want the same as back the things were evennwant more to be as they were in bacck and i know god is there seening my efforts my tears my passion my desire and my evrything i am so thankfull and greatfull for that to the god pls just make it foerever god and make it successfull all the things i wish and desire for and pls make it plz and at last i am thankfull to god for everything and making me beilve that you are always there for me </body></html> 
